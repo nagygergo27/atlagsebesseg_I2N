@@ -1,1 +1,1 @@
-# Sinto Project
+# NEM 🐱‍🏍
